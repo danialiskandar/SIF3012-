@@ -1,1 +1,2 @@
-# SIF3012-
+# SIF3012
+I hate this course
